@@ -1,3 +1,2 @@
 - I’m Poaq :pill: :stethoscope:
 - Doing learnin' shit here :computer:
-- It's probably all private repos, sorry nerds :joystick: :video_game:
