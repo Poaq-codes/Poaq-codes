@@ -1,2 +1,2 @@
 - I’m Poaq :pill: :stethoscope:
-- Doing learnin' shit here :computer:
+- Doing learnin' here :computer:
